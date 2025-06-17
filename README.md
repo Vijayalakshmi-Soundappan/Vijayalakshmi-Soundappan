@@ -37,7 +37,7 @@ I'm currently looking for **full-time roles** in **web application development**
 ---
 
 ### 📫 Let’s Connect!
-- 📧 Email: vijayalakshmi.email@example.com  
+- 📧 Email: vijayalakshmis171214@gmail.com
 - 🔗 [LinkedIn](https://www.linkedin.com/in/vijayalakshmis17102)  
 ---
 
